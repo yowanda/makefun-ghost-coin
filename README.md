@@ -1,0 +1,1 @@
+# makefun-ghost-coin
